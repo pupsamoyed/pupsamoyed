@@ -1,1 +1,1 @@
-<img width="3332" height="2100" alt="Samoyed X LM" src="https://github.com/user-attachments/assets/e42d5782-2cbe-4644-b3ec-6b6c1348d582" />
+<img width="1793" height="2172" alt="Untitled293_20260715234806" src="https://github.com/user-attachments/assets/d8eefe17-852a-4c95-825f-da2d8e898d03" />
